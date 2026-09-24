@@ -1,1 +1,1 @@
-https://claude.ai/artifact/NDdCCdKQXiLVoWa2mimdJk
+MENU NUDOS MAGICOS
